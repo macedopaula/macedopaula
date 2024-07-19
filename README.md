@@ -1,7 +1,7 @@
 ### Olá! Hi! Servus! Hallo! :sunflower: :sunflower: :sunflower:
 
 
-:woman_technologist: : I am Paula and currently I am a Bachelor in Computer Science UFRJ. 
+:woman_technologist: : I am a Bachelor in Computer Science UFRJ. 
 
 :heart_decoration: : I love learning about new cultures, languages and technologies. 
 
